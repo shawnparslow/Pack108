@@ -1,6 +1,6 @@
-#September Committee Meeting
+# September 2022 Committee Meeting
 
-
+## items
 * 9/15 Pack Meeting
 
 * 9/27 Fall Campout?
