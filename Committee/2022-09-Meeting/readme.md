@@ -13,5 +13,6 @@
 * Police Tour Date is set for 10/11/2022
   * Reached out to make sure its still happening (signup is live)
 * Methodist Church
+* Crossroads Airshow 2023
 
 ## Actions
