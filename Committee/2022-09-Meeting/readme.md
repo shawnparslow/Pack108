@@ -1,10 +1,23 @@
 # September 2022 Committee Meeting
 
 ## Discussion
+* Open Roles
+  * Treasurer
+  * Advancement
+  * Membership
+  * Fundraising
+  * PW Derby
+  * Small Roles
+    * Blue Gold Dinnder, Shirt Orders
+  * Web Team / Socia / Email
+  * Secretary
+  * Summer Camp Chair (Lowe)
+  * Outdoor Event Chair (Campouts, etc)
+ 
 * Recruiting
   * Bring a friend?
-* 9/15 Pack Meeting
-  * Bring a friend?
+* 9/15 Pack Meeting - This Thursday?
+  * Bring a friend, bring a neighbor
 
 * Fall Campout?
   * 9/27, Jeff/Cait's schedule shoudl drive
