@@ -1,6 +1,6 @@
 # September 2022 Committee Meeting
 
-## items
+## Discussion
 * Recruiting
   * Bring a friend?
 * 9/15 Pack Meeting
@@ -11,3 +11,5 @@
 * Police Tour Date is set for 10/11/2022
 
 * Methodist Church
+
+## Actions
