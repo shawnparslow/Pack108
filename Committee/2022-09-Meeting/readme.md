@@ -2,11 +2,12 @@
 
 ## items
 * Recruiting
-* * Bring a friend?
+  * Bring a friend?
 * 9/15 Pack Meeting
-* * Bring a friend?
+  * Bring a friend?
 
-* 9/27 Fall Campout?
+* Fall Campout?
+  * 9/27, Jeff/Cait's schedule shoudl drive
 * Police Tour Date is set for 10/11/2022
 
 * Methodist Church
