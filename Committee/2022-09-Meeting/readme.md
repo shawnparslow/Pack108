@@ -14,5 +14,8 @@
   * Reached out to make sure its still happening (signup is live)
 * Methodist Church
 * Crossroads Airshow 2023
+  * Put on the 2023 Calendar 
+  * Campout at Belzer (Encampment) - crossroadsairshow.com/encampment
+  * Interest form https://www.crossroadsbsa.org/airshow/encampment/#Interest  
 
 ## Actions
