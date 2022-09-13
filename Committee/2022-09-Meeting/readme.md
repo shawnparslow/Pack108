@@ -33,6 +33,8 @@
 * Fall Campout?
   * Jeff (AOL) and Cait (Baloo) schedules should drive
 
+* Good Turn For Nature Sat, 24th
+  * 9AM-Noon Flat Fork Creek (Council for packs and troops) 
 * Police Tour Date is set for 10/11/2022
   * Reached out to make sure its still happening (signup is live)
 * Methodist Church
