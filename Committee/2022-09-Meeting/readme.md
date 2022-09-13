@@ -1,18 +1,19 @@
 # September 2022 Committee Meeting
 
 ## Discussion
-* Many Open Roles (all broken into small functions that only occur during parts of the year)
-  * Treasurer - Currently Doug, needs a replacement
-  * Advancement
-  * Membership
-  * Fundraising/Popcorn Col.
-  * PW Derby
-  * Small Roles
-    * Blue Gold Dinnder, Shirt Orders
-  * Web Team / Social / Email
-  * Secretary
-  * Summer Camp Chair (Lowe)
-  * Outdoor Event Chair (Campouts, etc)
+* Open Roles
+  * There are many open roles but they are all broken up into small managable functions (many only occur during parts of the year)
+    * Treasurer - Currently Doug L. who is staying on from lasty year to help us, needs a replacement to hand things over to
+    * Advancement - Job involves looking in scout book at new scout achievments, picking up awards from the scout shop, sorting/labeling for pack meeting hand out
+    * Membership
+    * Fundraising/Popcorn Col.
+    * Pinewood Derby - Shawn will manage and cross train 
+    * Blue Gold Dinner - Winter event where we celebrate our Arrow of Light recipients
+    * Annual Shirt Orders
+    * Web Team / Social / Email - Editing web forms, sending out info on social media, email comminication
+    * Secretary - Take meeting minutes/send out, manage scoutbook events/notifications
+    * Summer Camp Chair (Lowe)
+    * Outdoor Event Chair (Campouts, etc)
  
 * New Scout Enrollment
   * Bring a friend?
