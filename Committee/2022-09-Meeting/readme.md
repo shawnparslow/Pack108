@@ -1,7 +1,7 @@
 # September 2022 Committee Meeting
 
 ## Discussion
-* Many Open Roles (all broken into small functions)
+* Many Open Roles (all broken into small functions that only occur during parts of the year)
   * Treasurer - Currently Doug, needs a replacement
   * Advancement
   * Membership
