@@ -43,8 +43,8 @@
   * We will try to have a date decided by the pack meeting so we can announce (location does not need to be nailed down as there are lots of options)
 
 * Crossroads Airshow - 2023
-  * Put on the 2023 Calendar 
-  * Campout at Belzer (Encampment) - crossroadsairshow.com/encampment
+  * Council is hyping, Put on the 2023 Calendar 
+  * Airshow Campout Event at Belzer (Encampment) - crossroadsairshow.com/encampment
   * Interest form https://www.crossroadsbsa.org/airshow/encampment/#Interest  
 
 ## Actions
