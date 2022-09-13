@@ -43,4 +43,4 @@
 
 ## Actions
 * Determine Date for Campout (Location is not needed yet)
-* Book Blue Gold Dinnder 
+* Book Blue Gold Dinner 
