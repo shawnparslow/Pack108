@@ -47,9 +47,11 @@
     * COR incorrect? 
   * Shawn will take on working with council
 
-* Toys for Tots November meeting?
+* November Pack Meeting
+  * Toys for Tots?, should we queue up a contact
 
 * Movie Party at Fellowship hall
+  * Shawn has everything to run this event
 
 ## Actions
 * Shawn - Make sure FUMC has us booked for 10/27
