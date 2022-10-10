@@ -9,19 +9,19 @@
 
 * Pack Roles
     * Treasurer
-    * Advancement - Job involves looking in scout book at new scout achievments, picking up awards from the scout shop, sorting/labeling for pack meeting hand out
+    * Advancement - Job involves looking in scout book at new scout achievements, picking up awards from the scout shop, sorting/labeling for pack meeting hand out
     * Membership - Help with enrollment / signup /etc
     * Fundraising/Popcorn Col.
     * Pinewood Derby - Shawn will manage and cross train 
     * Blue Gold Dinner - Winter event where we celebrate our Arrow of Light (AOL) recipients
     * Annual Shirt Orders
-    * Web Team / Social / Email - Editing web forms, sending out info on social media, email comminication
+    * Web Team / Social / Email - Editing web forms, sending out info on social media, email communication
     * Secretary - Take meeting minutes/send out, manage scoutbook events/notifications
     * Summer Camp Chair - Kristin L.
     * Outdoor Event Chair - Planning Campouts and other outdoor activities
 
 * Popcorn
-  * Updates, any surpluss we need to deal with?
+  * Updates, any surplus we need to deal with?
   
 * Police and Fire Tour - October 12th
   * 10 spots left, Signup is at https://forms.gle/hFx47U8u8i4iQ9nb9
