@@ -1,7 +1,7 @@
 # October 2022 Committee Meeting
 
-### When: Monday, October 10th at 7:45PM
-### Where: 96th Street Panera (8510 E 96th St Suite A, Fishers, IN 46038)
+#### When: Monday, October 10th at 7:45PM
+#### Where: 96th Street Panera (8510 E 96th St Suite A, Fishers, IN 46038)
 
 
 ## Discussion
