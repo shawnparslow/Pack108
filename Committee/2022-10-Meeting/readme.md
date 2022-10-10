@@ -30,9 +30,11 @@
 * Den Reports
   * Everyone get meetings started? Any barriers
 
-* 10/27 Pack Meeting
+* October Pack Meeting
+  * 10/27 at FUMC
   * Shawn will reach out to confirm room at FUMC
   * Scoutbook event is already created
+  * What else do we need?
 
 * Fall Campout - 10/28
   * Date and Location locked!
