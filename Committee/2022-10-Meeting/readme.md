@@ -4,7 +4,7 @@
 #### Where: 96th Street Panera (8510 E 96th St Suite A, Fishers, IN 46038)
 
 
-## Discussion
+## Agenda
 * Follow up, any open actions from last meeting
 
 * Pack Roles
