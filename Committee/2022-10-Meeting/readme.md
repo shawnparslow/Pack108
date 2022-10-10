@@ -35,8 +35,9 @@
   * Scoutbook event is already created
 
 * Fall Campout - 10/28
-  * Food 
-    * (can/should we have den 1 plan that Wed before for their Cast Iron Chef requirement?)
+  * Date and Location locked!
+  * Food Plan?
+    * (can/should we have den 1 plan that Wed before for their Cast Iron Chef requirement?) - just a thought
 
 * Scoutbook Issues
   * Monica outlined some ongoing problems she has been having with her account and training credit
