@@ -38,9 +38,16 @@
   * Food 
     * (can/should we have den 1 plan that Wed before for their Cast Iron Chef requirement?)
 
+* Scoutbook Issues
+  * Monica outlined some ongoing problems she has been having with her account and training credit
+  * Anyone else having issues, what gaps do we need to close?
+    * COR incorrect? 
+  * Shawn will take on working with council
+
 * Toys for Tots November meeting?
 
 * Movie Party at Fellowship hall
 
 ## Actions
 * Shawn - Make sure FUMC has us booked for 10/27
+* Shawn - work with Council on scoutbook anomalies
