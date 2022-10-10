@@ -8,7 +8,7 @@
 * Follow up, any open actions from last meeting
 
 * Pack Roles
-    * Treasurer - (Julie) Yay!!!
+    * Treasurer
     * Advancement - Job involves looking in scout book at new scout achievments, picking up awards from the scout shop, sorting/labeling for pack meeting hand out
     * Membership - Help with enrollment / signup /etc
     * Fundraising/Popcorn Col.
