@@ -70,6 +70,7 @@
 
 * Movie Party at Fellowship hall
   * Shawn has everything to run this event
+  * Pick a Sat where fellowship hall is available 
 
 ## Actions
 * Shawn - Make sure FUMC has us booked for 10/27
