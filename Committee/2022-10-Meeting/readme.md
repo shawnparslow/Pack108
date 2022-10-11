@@ -37,9 +37,14 @@
   * What else do we need?
 
 * Fall Campout - 10/28
-  * Date and Location locked!
-  * Food Plan?
+  * Date and Location locked - Camp Belzer
+    * We have cabin access, its going to be close and convinient - does it get any better!
+      * 2 cabins w/3 rooms each || 6 available rooms - 1 per family with 8 bunked beds in a room
+      * Need to perserve family privacy per cabin
+  * Food Plan
     * (can/should we have den 1 plan that Wed before for their Cast Iron Chef requirement?) - just a thought
+    * Friday night / Saturday Breakfast
+      * Campfire snack and BYO Dinner suggested 
 
 * Scoutbook Issues
   * Monica outlined some ongoing problems she has been having with her account and training credit
