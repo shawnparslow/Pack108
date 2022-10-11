@@ -3,7 +3,6 @@
 #### When: Monday, October 10th at 7:45PM
 #### Where: 96th Street Panera (8510 E 96th St Suite A, Fishers, IN 46038)
 
-
 ## Agenda
 * Follow up, any open actions from last meeting
 
@@ -21,14 +20,25 @@
     * Outdoor Event Chair - Planning Campouts and other outdoor activities
 
 * Popcorn
-  * Updates, any surplus we need to deal with?
+  * Sales going well, we have some supply left but should have no problem selling as long as we 
+  * Storefront is the way to go, we are having good success
   
 * Police and Fire Tour - October 12th
-  * 10 spots left, Signup is at https://forms.gle/hFx47U8u8i4iQ9nb9
-  * Anyone report issues to sound/light or social media? 
+  * 3 spots left, Signup is at https://forms.gle/hFx47U8u8i4iQ9nb9 
+  * No social media issue
+  * Some kids may have light/sound sensitivity - we just need to ask tour not to surprise us.
 
 * Den Reports
-  * Everyone get meetings started? Any barriers
+  * Arrow Of Light/AOL (5th Graders) - 
+  * Webelos (Den 1/4th Grade) - Stronger, Higher, Faster started - we will try to close out/award by the 27th
+  * Bear/Wolf are individuals
+  * Tigers (1st) - Scoutbook issues, we need to resolve so communication is not blocked
+  * Lions (K) had their meeting - Lions Honor
+  * Police & Fire Tour will be a den meeting for all attending
+  * We have 2 Den Chiefs that can help, we should be strategically inviting or including them 
+
+* Mass Den Meeting Idea proposed
+  * Workshop approach to work on and swarm requirements
 
 * October Pack Meeting
   * 10/27 at FUMC
