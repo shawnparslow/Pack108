@@ -23,6 +23,8 @@
   * Sales going well, we have some supply left but should have no problem selling as long as we 
   * Storefront is the way to go, we are having good success
     * Because we are using pack inventory we should complete store front sales as wagon sales in Trails End app
+  * We need to create a document that captures all the intricaies of popcorn sale (trading inventory, etc)
+
   
 * Police and Fire Tour - October 12th
   * 3 spots left, Signup is at https://forms.gle/hFx47U8u8i4iQ9nb9 
